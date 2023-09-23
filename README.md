@@ -6,4 +6,4 @@
 - 💕 My Behance: https://www.behance.net/olenaproduction
 - 🤳 My LinkedIn: https://www.linkedin.com/in/olena-pavlova-100a98272
 - 😺 My portfolio website: coming soon...
-- 📫 How to reach me email: olenaproduction@gmail.com
+- 📫 How to reach me olenaproduction@gmail.com
