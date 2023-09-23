@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @olena-production
+- 👀 I’m interested in design and economic analysis
+- 🌱 I’m currently learning UX/UI design and html/css
+- 💞️ I’m looking for new projects.
+- 😃 In result you will have ready website for your business
+- 💕 My Behance: https://www.behance.net/olenaproduction
+- 🤳 My LinkedIn: https://www.linkedin.com/in/olena-pavlova-100a98272
+- 😺 My portfolio website: coming soon...
+- 📫 How to reach me email: olenaproduction@gmail.com
