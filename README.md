@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @olena-production
-- 👀 I’m interested in design and economic analysis
+- 👀 I’m interested in design and economics analysis
 - 🌱 I’m currently learning UX/UI design and html/css
 - 💞️ I’m looking for new projects.
 - 😃 In result you will have ready website for your business
