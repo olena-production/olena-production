@@ -5,5 +5,5 @@
 - 😃 In result you will have ready website for your business
 - 💕 My Behance: https://www.behance.net/olenaproduction
 - 🤳 My LinkedIn: https://www.linkedin.com/in/olena-pavlova-100a98272
-- 😺 My portfolio website: coming soon...
+- 😺 My resume website: https://olena-production-resume.netlify.app/
 - 📫 How to reach me olenaproduction@gmail.com
